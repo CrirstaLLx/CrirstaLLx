@@ -1,4 +1,4 @@
-## Hi 👋, I'm CristaLLx
+## Hi 👋, I'm CrirstaLLx
 ### a passionate software engineering student with desire to learn and grow:*
 
 
